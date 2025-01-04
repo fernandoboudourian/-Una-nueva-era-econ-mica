@@ -1,1 +1,2 @@
-# -Una-nueva-era-econ-mica
+# -Una-nueva-era-económica
+La economía global enfrenta el fin de las tasas de interés cercanas a cero, marcando un cambio histórico. Sectores como el inmobiliario y automotriz sufren ajustes, mientras tecnologías emergentes como la inteligencia artificial ganan protagonismo. Los bancos centrales buscan controlar la inflación, pero los riesgos de una recesión prolongada persisten. Este es un momento crucial para repensar estrategias y encontrar oportunidades en medio de la transformación económica.
